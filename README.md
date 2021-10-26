@@ -1,2 +1,3 @@
 # Crash-Bot
-Git Hub Tomatrash
+Git Hub Tomatrash〽️
+TdM Ownerk
